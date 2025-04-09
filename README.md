@@ -1,0 +1,1 @@
+# gmod_zip_extinguish_any_fire_type
